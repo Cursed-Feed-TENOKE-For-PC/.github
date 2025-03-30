@@ -1,4 +1,4 @@
-# Cursed Feed TENOKE Video Game For PC 2025
+# Cursed Feed TENOKE Video Game For PC 2025 
 
 Cursed Feed is a Horror and Adventure game for PC published by Playstige Interactive in 2025. Lead the Thornvale family.
 
